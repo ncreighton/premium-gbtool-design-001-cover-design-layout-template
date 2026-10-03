@@ -1,0 +1,2 @@
+# premium-gbtool-design-001-cover-design-layout-template
+Struggling to visualize your gold-tooled cover designs before committing to expensive materials? The Cover Design Layout Template eliminates guesswork by giving you a professional Notion workspace to plan, iterate, and perfect every detail of your heritage bookbinding covers.  This template is built specifically for bookbinders who need to map out
